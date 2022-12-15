@@ -35,6 +35,6 @@ Feel free to contact me to learn more about my experience and skills, or to disc
 
 I am always open to new opportunities and challenges. 🤝
 
-Email: kenji.nakagava@email.com
+Email: kenjinakagava@gmail.com
 
 LinkedIn: https://www.linkedin.com/in/kenjinakagava/
